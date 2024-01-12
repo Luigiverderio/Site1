@@ -1,4 +1,4 @@
-﻿# Site1 - AMERICANAS
+﻿# Site CÓPIA DO AMERICANAS - Americanas copy page
 
 Site cópia do https://www.americanas.com.br/ 😁✌️
 
